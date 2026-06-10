@@ -1,1 +1,1 @@
-Hello everyone, my is Assurance
+Hello everyone, my name is Assurance
